@@ -5,7 +5,6 @@
 - 📫 How to reach me : 
                       Twitter:https://twitter.com/Antonio04789716
                       DC:Antonio S.#1992
-                      linkedin.com/in/antonio-s-70529a22a/
 
 <!---
 AntonioStajk/AntonioStajk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
