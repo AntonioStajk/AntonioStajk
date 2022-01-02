@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Coding Sessions
 - 📫 How to reach me : 
                       Twitter:https://twitter.com/Antonio04789716
-                      Discord:Antonio S.#1992
+                      DC:Antonio S.#1992
                       linkedin.com/in/antonio-s-70529a22a/
 
 <!---
